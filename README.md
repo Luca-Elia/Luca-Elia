@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Luca-Elia
+- 👋 Hi, I’m @Luca-Elia, an UXUI Designer
 - 👀 I’m interested in Digital Art, Social Media & the World 
-- 🌱 I’m currently learning UX Design, Cross-Cultural Communication 
-- 💞️ I’m looking to collaborate on projects related to the field of UX Design and anything that requires creativity!
+- 🌱 Have a background in Histoy, Chinese, and Cross-Cultural Communication 
+- 💞👾 I’m looking to collaborate on projects related to the field of UX Design and anything that requires creativity!
 - 📫 How to reach me: lucaelia.salomon@gmail.com
 
 <!---
